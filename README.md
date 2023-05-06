@@ -1,5 +1,5 @@
 # 💫 About Me:
-💡 I am currently studying in elsys :)<br>🧠 Enthusiast :D
+💡 ELSYS student :')<br>🧠 Enthusiast :D
 
 
 # 💻 Tech Stack:
