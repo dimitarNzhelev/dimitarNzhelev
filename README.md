@@ -1,5 +1,5 @@
 # 💫 About Me:
-💡 ELSYS student :')<br>🧠 Enthusiast :D
+💡 ELSYS student :_)<br>🧠 Enthusiast :D
 
 
 # 💻 Tech Stack:
